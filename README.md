@@ -1,4 +1,4 @@
-Szerődések
+Szerződések
 ===========
 
 Szerződések gyűjteménye
